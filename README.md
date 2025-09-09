@@ -1,0 +1,1 @@
+Bu repositoryny dine sapak gechmek maksatly doretdik
